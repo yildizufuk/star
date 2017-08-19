@@ -1,0 +1,2 @@
+# star
+benım iş projem
